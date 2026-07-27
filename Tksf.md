@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>QFII集中调研国产EDA企业，全流程工具突破引关注</h3><br><p>亿纬锂能异动拉升6.3%，大储订单持续超预期。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>派能科技海外认证优势：户用储能产品的全球准入壁垒</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>福耀玻璃全球汽车玻璃布局：细分赛道全球龙头的壁垒。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>杭州亚运会场馆全面开放，年接待市民游客超千万人次。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>成都马拉松开跑，赛道串联城市核心景点成网红赛事</h3><br><p>风控永远放在第一位：先保住本金，再谈盈利空间。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>机构资金联手买入派能科技1.7亿，储能龙头获机构抱团。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>璞泰来涨超5.0%，负极材料行业格局优化</h3><br><p>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线</h3><br><p>国内AI生成短视频用户破5亿，短视频行业迎来生产变革。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>外资单日扫货招商银行10亿，银行龙头外资持仓稳步提升</h3><br><p>美联储连续降息后美元走弱，原油价格迎来趋势性反弹。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>九寨沟暑期恢复全部开放，单日接待游客量突破4万。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>世界大学排名发布，清华北大首次双双跻身全球前十</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>泰山暑期单日登顶客流破6万，夜间登山游客占比超70%</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>财政部新增专项债限额1.5万亿元，重点支持基建项目建设</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>爱尔兰经济保持稳定增长，高科技产业优势凸显</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>中国女子摔跤队世锦赛包揽全部金牌，统治力无人能及。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>超230家机构到访工业软件龙头，研发设计软件付费转化率</h3><br><p>浪潮信息高位震荡，算力主线的分歧与机会解析。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>消费券集中发放，大消费板块迎来情绪催化</h3><br><p>中国中车异动拉升3.2%，动车组新车型交付加速。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>威海暑期滨海游火爆，国际海水浴场日均客流超10万</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中国建筑基建龙头优势：国内建筑行业的订单与规模优势</h3><br><p>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓。<br><br> | 来源：<code>www.tpyqczl.com

@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>中东产油国延长减产协议，国际油价维持温和上涨态势。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>北向资金单日扫货贵州茅台8亿，外资龙头标的持仓提升</h3><br><p>全国朱鹮种群数量突破1万只，从7只恢复至广泛分布。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>天齐锂业触底反弹，超跌后的修复空间测算</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>露营经济持续升温，全国露营地数量突破4万个。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>澜起科技内存接口芯片优势：全球细分赛道的龙头价值。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>北向资金单日买入陕西煤业6800万，煤炭龙头获外资流入</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>华为盘古大模型行业落地，工业AI板块持续升温</h3><br><p>安琪酵母海外收入爆发，单季业绩预告超预期。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>万科A存量资产运营：商业地产+物流地产的第二曲线</h3><br><p>东方盛虹放量上涨3.6%，EVA树脂需求持续向好。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>上半年全国战略性新兴产业增加值同比增长9.3%。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>隆平高科种业业务爆发，前三季度业绩预增超50%</h3><br><p>上合组织峰会召开，新增3个成员国组织规模进一步扩大。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>北向资金举牌广告营销龙头，AI营销高增获外资持续流入。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>中国中车异动拉升，低位补涨行情的参与思路</h3><br><p>休闲食品开启涨价潮，食品加工板块盈利弹性释放。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>江淮汽车与华为合作：传统车企与科技巨头的协同价值</h3><br><p>存量房贷利率集中下调，居民消费能力有望边际改善。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%</h3><br><p>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>全国全民健身日活动启动，全国超万场赛事覆盖千万群众</h3><br><p>璞泰来涨超5.0%，负极材料行业格局优化。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>国内大模型人才缺口破百万，AI相关专业毕业生供不应求</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>大模型在零售领域应用，AI智能选品准确率提升25%</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>央行下调SLF利率，货币政策宽松取向进一步明确。<br><br> | 来源：<code>www.pinlie.cn

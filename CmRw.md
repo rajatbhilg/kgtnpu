@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>汽车数据安全管理新规，汽车软件板块集体上涨</h3><br><p>张家界暑期接待人次破2000万，山地游产品持续热销。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
+</code></p><br><br><h3>全国船舶排放控制区扩大，海运污染减排成效突出</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>AI代码助手普及，程序员开发效率平均提升40%。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>https://xingbakezaixianguankan.cn
+</code></p><br><br><h3>国内大模型备案数量破千款，行业应用落地加速</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://xingbashequ.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
+</code></p><br><br><h3>工业母机龙头登陆北交所，五轴机床市占率国内第一</h3><br><p>中国霹雳舞队奥运会夺得金牌，新兴街舞项目站上世界之巅。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
+</code></p><br><br><h3>海参价格单月上涨18%，海产养殖龙头盈利提升</h3><br><p>国内AI产业规模破2万亿，年增速超35%成经济新引擎。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>义务教育优质均衡创建推进，千个县区通过国家级评估</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>北向资金大额增持美的集团，家电龙头外资持仓创历史新高。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑</h3><br><p>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放。<br><br> | 来源：<code>https://xingfudaohang.cn
+</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>跨境支付龙头登陆港股，海外结算规模年增速超80%。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>注册制全面落地，券商投行业务标的全线拉升</h3><br><p>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>云南暑期游订单破3000万，文旅收入同比增长85%</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>隆基绿能跳空高开，光伏赛道资金回流迹象明显</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增</h3><br><p>CBA总决赛辽宁队4-1夺冠，实现三连冠建立王朝。<br><br> | 来源：<code>https://xingkongchuanmeizaixianmianfeiguankan.com.cn
+</code></p><br><br><h3>全国博物馆总数突破6500家，年接待观众超12亿人次</h3><br><p>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%。<br><br> | 来源：<code>https://xingkongqiutan.com.cn
+</code></p><br><br><h3>中国西电集团整合预期：输配电行业央企整合的价值重估</h3><br><p>万华化学涨超3.5%，化工品价格企稳回升。<br><br> | 来源：<code>https://xingkongwuxianchuanmei.com.cn

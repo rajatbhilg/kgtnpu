@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分47秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国危险废物处置能力突破2亿吨/年，安全处置率100%</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>https://zh-yin.com.cn
+</code></p><br><br><h3>全球汽车市场新能源渗透率突破30%，中国品牌引领潮流</h3><br><p>深高速放量上涨2.5%，深圳区域路网资产优质。<br><br> | 来源：<code>https://zh-yinghuashipin.com.cn
+</code></p><br><br><h3>中国交建海外订单落地，前三季度业绩预增超18%</h3><br><p>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流。<br><br> | 来源：<code>https://zh-yinluan.com.cn
+</code></p><br><br><h3>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升</h3><br><p>中国攀岩队世锦赛夺得2金，速度攀岩世界纪录多次被打破。<br><br> | 来源：<code>https://zh-yiqicao.com.cn
+</code></p><br><br><h3>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团</h3><br><p>全国徒步露营大会举办，串联百公里山野路线吸引数万爱好者。<br><br> | 来源：<code>https://zh-youyou.com.cn
+</code></p><br><br><h3>隆基绿能跳空高开，光伏赛道资金回流迹象明显</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>https://zh-yuputuan.com.cn
+</code></p><br><br><h3>全国石漠化土地面积持续缩减，治理率超60%</h3><br><p>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼。<br><br> | 来源：<code>https://zh-zuoai.com.cn
+</code></p><br><br><h3>长安汽车自主转型路径：从传统燃油车到新能源的蜕变</h3><br><p>国内老年文旅市场升温，银发游订单同比增长70%。<br><br> | 来源：<code>https://zhang-ri-guangyin.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>https://zhangbaizhiyanzhaomen.net.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>https://zhaoyangshui.com.cn
+</code></p><br><br><h3>百亿私募组团到访人形机器人标的，核心零部件产能引关注</h3><br><p>氢能燃料电池龙头登陆创业板，商用车推广订单同比大增。<br><br> | 来源：<code>https://zhengtaidapigu.cn
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>车规级芯片国产替代加速，汽车半导体板块走强。<br><br> | 来源：<code>https://zhengtaimanhua.com.cn
+</code></p><br><br><h3>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://zhengtu-guoji-app.com
+</code></p><br><br><h3>中国-东盟自贸区3.0版谈判完成，贸易便利化升级</h3><br><p>机构资金集中买入闻泰科技1.1亿，半导体ODM龙头获抱团。<br><br> | 来源：<code>https://zhengtu-guoji-entry.com
+</code></p><br><br><h3>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%</h3><br><p>通威股份全产业链成本控制：光伏硅料环节的盈利韧性。<br><br> | 来源：<code>https://zhengtu-guoji.com.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放。<br><br> | 来源：<code>https://zhenren-sports-hub.com.cn
+</code></p><br><br><h3>生成式AI服务管理细则，AI应用板块情绪修复</h3><br><p>全国居民平均每日运动时长超1小时，运动习惯逐步养成。<br><br> | 来源：<code>https://zhibo-zuoai.com.cn
+</code></p><br><br><h3>2026年上半年GDP同比增长5.8%，经济复苏动能持续增强</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://zhiguangzaixian.org.cn
+</code></p><br><br><h3>高管团队集体增持宠物食品龙头，合计增持超6500万</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>https://zhiguangzaixianguankan.org.cn
+</code></p><br><br><h3>全球可再生能源投资首次超过化石能源，能源转型拐点到来</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放。<br><br> | 来源：<code>https://zhongwenwumazaixianbofang.cn

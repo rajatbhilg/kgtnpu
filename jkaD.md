@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>北向资金单日买入正泰电器4700万，户用光伏龙头获流入。<br><br> | 来源：<code>https://new-yazhouzaixian.com.cn
+</code></p><br><br><h3>通威股份硅料产能优势：低成本产能释放下的行业格局</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>https://new-yeyelu.cn
+</code></p><br><br><h3>全球人口突破81亿，人口结构变化重塑经济格局</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://new-yinghuashipin.com.cn
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>新能源汽车购置税减免延期，整车板块集体走强。<br><br> | 来源：<code>https://new-yiqicao.com.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>商业航天准入政策放宽，商业航天标的异动。<br><br> | 来源：<code>https://new-zaixianguankan.com.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://new-zunlongsports.com.cn
+</code></p><br><br><h3>铂价上涨10%，燃料电池催化剂板块迎来涨价催化</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://ng-nangong-download.com
+</code></p><br><br><h3>城市更新行动政策，城市更新板块走强</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://nianqing-de-muqin-zaixian-guankan.com.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>多地发放亿元文旅消费券，直接带动消费超30亿。<br><br> | 来源：<code>https://nianqingde.com.cn
+</code></p><br><br><h3>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%</h3><br><p>比亚迪Q3销量破百万，业绩预告同比翻倍。<br><br> | 来源：<code>https://nianqingdemuqin.net.cn
+</code></p><br><br><h3>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒</h3><br><p>CBA联赛总决赛收视率创新高，本土球员表现亮眼。<br><br> | 来源：<code>https://ningmeng-zh.com.cn
+</code></p><br><br><h3>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志</h3><br><p>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空。<br><br> | 来源：<code>https://niubaqiuxun.com.cn
+</code></p><br><br><h3>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持</h3><br><p>北向资金大额扫货安琪酵母5500万，酵母龙头获外资流入。<br><br> | 来源：<code>https://niunaibaozangku.com.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>中欧班列开行量创新高，铁路物流板块集体上涨。<br><br> | 来源：<code>https://niunaidongman.com.cn
+</code></p><br><br><h3>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%</h3><br><p>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定。<br><br> | 来源：<code>https://niunaidongmanku.com.cn
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>https://niunaipianku.com.cn
+</code></p><br><br><h3>汉缆股份涨超3.9%，电网投资带动订单增长</h3><br><p>养老金新进车载芯片龙头，布局车规级半导体赛道。<br><br> | 来源：<code>https://nu-gong.com.cn
+</code></p><br><br><h3>天合光能N型技术优势：光伏行业技术迭代下的领先地位</h3><br><p>中秋国庆旅游数据超预期，旅游酒店板块异动。<br><br> | 来源：<code>https://nu-lu-nan-chugui-bi-qu-ge-jian-jun-1.com.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>全国工业余热利用项目大规模落地，年节能超千万吨标准煤。<br><br> | 来源：<code>https://nu-nu.com.cn
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://nuan-nuan-ai-shipin-mianfei.com.cn

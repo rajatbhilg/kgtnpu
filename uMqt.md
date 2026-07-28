@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万。<br><br> | 来源：<code>https://jiu-seshipin.com.cn
+</code></p><br><br><h3>复合肥价格上调7%，化肥全产业链盈利优化</h3><br><p>沪股通席位单日买入中国中冶5300万，冶金工程标的增持。<br><br> | 来源：<code>https://jiu-you-tiyu.com.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://jiu-you-yule.com.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹。<br><br> | 来源：<code>https://jiu-youyule.cn
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部13金，延续梦之队统治力</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>https://jiucaoshequ.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>全国统一大市场建设取得阶段性进展，流通成本下降15%。<br><br> | 来源：<code>https://jiujiu-ai.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>量子计算原型机新突破，量子科技板块集体拉升。<br><br> | 来源：<code>https://jiujiu-aiyazhouwuma.cn
+</code></p><br><br><h3>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>https://jiujiu-cao.com.cn
+</code></p><br><br><h3>大模型在零售领域应用，AI智能选品准确率提升25%</h3><br><p>全国城市公共交通新能源化率达100%，零排放出行普及。<br><br> | 来源：<code>https://jiujiu-cha.com.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>https://jiujiu-jingpin.cn
+</code></p><br><br><h3>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势</h3><br><p>全国攀岩联赛覆盖20城，攀岩运动成年轻人新宠。<br><br> | 来源：<code>https://jiujiu-jingpin.com.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>新能源金属需求回暖：钴、锂、镍的行情持续性对比。<br><br> | 来源：<code>https://jiujiu-jingpinshipin.com.cn
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓</h3><br><p>隆基绿能涨超5.7%，HPBC组件出货量爆发。<br><br> | 来源：<code>https://jiujiu-re.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>头部券商到访游戏出海龙头，海外流水增速数据首次公开。<br><br> | 来源：<code>https://jiujiu-re.com.cn
+</code></p><br><br><h3>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内</h3><br><p>龙江交通放量上涨1.8%，东北区域车流量边际改善。<br><br> | 来源：<code>https://jiujiu-se.com.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>城市防洪排涝政策，管网建设标的全线拉升。<br><br> | 来源：<code>https://jiujiu-shipin.cn
+</code></p><br><br><h3>自动驾驶大模型迭代，端到端算法落地量产车型</h3><br><p>国电南瑞放量上涨3.8%，电网自动化业务高增。<br><br> | 来源：<code>https://jiujiu-shipin.com.cn
+</code></p><br><br><h3>中兴通讯放量上涨4.8%，算力服务器业务高增</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>https://jiujiu-tiantang.com.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>全国铁人三项联赛覆盖20城，参赛人数同比增长80%。<br><br> | 来源：<code>https://jiujiu-wang.com.cn
+</code></p><br><br><h3>中国手球俱乐部首次获得亚洲冠军，项目发展迎来新机遇</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>https://jiujiu-zaixian.cn
